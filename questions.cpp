@@ -1,0 +1,5 @@
+"Dude, do not go into the bathroom. There's ____ in there."
+"After phasing out orca shows, sea world started a show for ____."
+"Mr. Musk, as your legal council, I must advice that you ____."
+"____ sounds great after four margaritas."
+"Uh, guys I know it was my idea but I'm having serious doubts about ____."
